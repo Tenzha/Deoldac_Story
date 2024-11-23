@@ -2,11 +2,11 @@
 
 *[Hutan Pebles]*
 
-Suara ranting pohon yang patah terdengar seirama dengan nafas tersengal-sengal, kaki pemuda itu tak terus berlari tanpa henti. *'Sial! Sial! Mereka berbahaya, tidak mungkin!'* Setiap sendi pada tubuhnya bergetar ketika ia berusaha untuk melarikan diri dari sesuatu yang menakutkan. *'Orang-orang yang ada Benua Vlarges harus tau tentang kebenaran ini, aku....'* Malam itu tidak lagi menjadi malam untuk tidur nyenyaknya ketika ia menatap ke atas dan menemukan dirinya seolah semakin jauh dari bulan.
+Suara ranting pohon yang patah terdengar seirama dengan nafas tersengal-sengal, kaki pemuda itu tak terus berlari tanpa henti. *'Sial! Sial! Mereka berbahaya, tidak mungkin!'* Dengan terseok-seok ia mencoba terus berlari tanpa henti. *'Orang-orang yang ada Benua Vlarges harus tau tentang kebenaran ini, aku--'* mata pria itu terbelalak bersamaan dengan darah dari mulutnya, ketika besi yang dingin itu terayun dan menebas lehernya.
 
-*Duk*, meskipun terlambat ia baru menyadari apabila saat ini dirinya sudah mati. *'Tidak... aku tak mau mati...'* tukasnya meskipun ia tak lagi dapat berbicara ketika kepalanya sudah berguling di tanah.
+Terasa begitu dingin dan menyakitkan, dan seketika kakinya mulai kehilangan tenaga dan membuat tubuhnya tersungkur ke tanah. *'Tidak... aku belum boleh mati....'*
 
-Tak lama kemudian dua orang dengan jubah hitam dan menggunakan topeng perlahan muncul dari kegelapan dan berjalan perlahan mendekati mayat pemuda itu. "Target sudah dikonfirmasi kematiannya." ujar salah satu assasin tersebut. Sementara itu, rekan dari assasin misterius itu merogoh kantongnya dan mengeluarkan sebuah botol berisi sebuah cairan berwarna hitam.
+Tak lama kemudian dua orang dengan jubah hitam dan menggunakan topeng perlahan muncul dari kegelapan dan berjalan perlahan mendekati mayat pemuda itu. "Target sudah dikonfirmasi kematiannya." ujar salah satu assasin tersebut. Sementara itu, rekan dari assasin misterius itu merogoh sesuatu dari kantongnya dan mengeluarkan sebuah botol berisi sebuah cairan berwarna hitam.
 
 Ia berjalan mendekat ke tubuh pria itu dan menuangkan cairan di tangannya itu ke mayat tersebut, dan terjadi sebuah reaksi dimana mayat dari pria yang telah mereka bunuh itu perlahan meleleh layaknya plastik yang dibakar dan lenyap menyatu dengan tanah.
 

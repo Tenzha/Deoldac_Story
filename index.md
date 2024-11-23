@@ -6,7 +6,7 @@
 
 ## Char
 - [[Char-Esil]]
-- [[Char-Rion]]
+- [[Char-Rion Alzeh Deoldac]]
 - [[Char-Philip]]
 
 ## Location
