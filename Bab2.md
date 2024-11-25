@@ -110,7 +110,7 @@ Terlihat kertas di dalam toples kaca itu terbakar hangus dan lenyap seketika. Se
 
 Rion menghela nafas mencoba untuk menenangkan dirinya, sebelum mengangguk. "Iya ayah." Rion kemudian meletakkan sebuah surat kabar di atas meja yang bertuliskan *"Kebakaran terjadi pada Perpustakaan Umum Kota Haltway."* Dimana surat kabar tersebut sudah terbit 2 Minggu yang lalu selepas insiden terjadi.
 
-"Ayah... Sore ini aku baru saja keluar untuk mengembalikan buku ke Perpustakaan umum... Jadi bagaimana bisa Perpustakaan itu mengalami kebakaran 2 Minggu yang lalu?!"
+"Ayah... Sore ini aku baru saja keluar untuk mengembalikan buku ke Perpustakaan umum... Bahkan aku bertemu dengan Esil hari ini! Jadi- bagaimana bisa Perpustakaan itu mengalami kebakaran 2 Minggu yang lalu?!"
 
 ## Bersambung
 
